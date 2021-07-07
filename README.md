@@ -7,6 +7,6 @@ Irei atualizar o github com todos os passos dados para alcançar a nova carreira
 
 📫 Meus e-mail para contato é o luana.go86@gmail.com, e o Linkedin é www.linkedin.com/in/luana-gomes-de-oliveira-93ba011a3.
 
-Até logo!
+Nos vemos por aí!👋
 
 
